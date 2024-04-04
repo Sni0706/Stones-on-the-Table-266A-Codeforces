@@ -1,0 +1,1 @@
+# Stones-on-the-Table-266A-Codeforces
